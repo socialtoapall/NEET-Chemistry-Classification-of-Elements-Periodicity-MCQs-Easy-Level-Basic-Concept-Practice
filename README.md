@@ -1,0 +1,2 @@
+# NEET-Chemistry-Classification-of-Elements-Periodicity-MCQs-Easy-Level-Basic-Concept-Practice
+Practice easy-level NEET MCQs from the Classification of Elements &amp; Periodicity in Properties chapter to strengthen your fundamentals. Revise concepts like atomic radius, ionization energy, electronegativity, electron affinity, and periodic trends across periods and groups before moving to tougher questions.
